@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sof9816@gmail.com**
 
-- ⚡ Fun fact **Fun fact I play video games :3**
+- ⚡ Fun fact **I play video games :3**
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
